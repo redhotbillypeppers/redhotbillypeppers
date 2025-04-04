@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @redhotbillypeppers
-- 👀 I’m interested in ... sex with creative women
+- 👀 I’m interested in ... creative women
 - 🌱 I’m currently learning ... c++ and python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
